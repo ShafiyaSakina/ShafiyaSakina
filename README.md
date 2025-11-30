@@ -49,7 +49,7 @@ I value clean, reproducible research, and enjoy transforming biological question
 
 ## Contact
 📧 Email: shafiyasakina68@gmail.com
-🔗 LinkedIn: linkedin.com/in/shafiya-sakina
+🔗 LinkedIn: https://www.linkedin.com/in/shafiya-sakina
 🌐 Portfolio: coming soon  
 
 ---
